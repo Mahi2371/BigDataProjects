@@ -1,1 +1,0 @@
-Procedure to be followed
